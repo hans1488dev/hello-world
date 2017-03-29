@@ -1,1 +1,2 @@
 Heil Hitler
+Heil Duce
